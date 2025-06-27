@@ -52,8 +52,8 @@ Want to explore more? Visit my GitHub portfolio site:
 ## 🤝 Let’s Connect
 
 - 🔗 [GitHub Profile](https://github.com/Mwaniki-Jacob-Muchiri)
-- 📧 Email: jacobmuchiri@example.com *(replace with your real email)*
-- 💬 WhatsApp Business: +2547XXXXXXX *(if safe to add)*
+- 📧 Email: Mwanikijacob63@gmail.com 
+- 💬 WhatsApp Business: +254799403249 
 
 ---
 
